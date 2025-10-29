@@ -1,1 +1,1 @@
-pratiku 2-pertemuan 6
+pratikum 2-pertemuan 6

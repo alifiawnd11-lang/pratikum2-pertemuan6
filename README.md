@@ -1,0 +1,1 @@
+# pratikum2-pertemuan6
